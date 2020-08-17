@@ -16,5 +16,4 @@ Foxes also signal each other by making scent posts—urinating on trees or rocks
 In winter, foxes meet to mate. The vixen (female) typically gives birth to a litter of 2 to 12 pups. At birth, red foxes are actually brown or gray. A new red coat usually grows in by the end of the first month, but some red foxes are golden, reddish-brown, silver, or even black. Both parents care for their young through the summer before they are able to strike out on their own in the fall.
 
 Red foxes are hunted for sport, though not extensively, and are sometimes killed as destructive pests or frequent carriers of rabies.
-
 ![Branching] (bbfbf.jpg)
